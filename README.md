@@ -21,17 +21,17 @@ The SHA256 hash for the ZIP file is:
 `D01088D1CA8317B4ECECD929D9F85301911283B5EE3C2F1DFB75FD3209ED9111`
 
 Here is a copy of player comments from the Oovee Games page about Apex Park:
-> nice, the setup looks like it would be a actual real location. :)
+> nice, the setup looks like it would be a actual real location. :)  
 > &mdash;  SKŲŁŁΘԲÐЗѦŦH
 > 
-> I agree SKULL & keep making more maps ! We need more Map builders & this is a invite to add me on Steam: Super_Scott_82' I have many hours in editor & will help you if you have any ?  Cant wait to go tear up some track :) 
+> I agree SKULL & keep making more maps ! We need more Map builders & this is a invite to add me on Steam: Super_Scott_82' I have many hours in editor & will help you if you have any ?  Cant wait to go tear up some track :)   
 > &mdash; Super_Scott2222
 >
-> Holy crap this is good.  A nice mountain pass
+> Holy crap this is good.  A nice mountain pass  
 > &mdash; alexlam24
 >
-> nice map cant wait to rockcrawl with my mods
+> nice map cant wait to rockcrawl with my mods  
 > &mdash; gomudding
 >
-> great map! the Dodge Daytona mod works great on the track!
+> great map! the Dodge Daytona mod works great on the track!  
 > &mdash; CamdenGamez
